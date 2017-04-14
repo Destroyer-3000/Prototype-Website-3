@@ -9,4 +9,4 @@
 <img src="https://learn.compactappliance.com/wp-content/uploads/2012/03/rice-cooker.jpg"/>
     <h3>Materials
     </h3>
-    <p>
+    <p>A non-stick pan with a clear lid, 400 grams of rice, 400 grams of water, and a stove

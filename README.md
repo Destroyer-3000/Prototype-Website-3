@@ -10,3 +10,7 @@
     <h3>Materials
     </h3>
     <p>A non-stick pan with a clear lid, 400 grams of rice, 400 grams of water, and a stove
+    </p>
+    <h3>Instructions
+    </h3>
+    <p>

@@ -31,7 +31,7 @@
     </p>
     <h3>Step 5:
     </h3>
-    <p>Finally, you can remove the lid, but careful not to drop the excess water on the lid into the rice. With wooden spoon or even wooden chopsticks, gently, and I mean gently, fold the rice from the bottom of the pot over the top (without crushing the grains), and repeat a couple more times until the rice is evenly “folded”. You may notice a small nub of rice at the bottom-centre of the pot being slightly colouredUnfortunately this is inevitable with stove-top cooking. If you are using this rice for making sushi, remove the small nub, but if you’re eating it plain, then it doesn’t really bother anyone.
+    <p>Finally, you can remove the lid, but careful not to drop the excess water on the lid into the rice. With wooden spoon or even wooden chopsticks, gently, and I mean gently, fold the rice from the bottom of the pot over the top (without crushing the grains), and repeat a couple more times until the rice is evenly “folded”. You may notice a small nub of rice at the bottom-centre of the pot being slightly coloured. Unfortunately this is inevitable with stove-top cooking. If you are using this rice for making sushi, remove the small nub, but if you’re eating it plain, then it doesn’t really bother anyone.
     </p>
     <h3>Step 6:
     </h3>
